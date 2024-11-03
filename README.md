@@ -48,8 +48,7 @@ Après un parcours dans la mode et l'éducation, j'ai opéré une transition ré
 ### 📬 Contact
 
 * [amaralpereira.clemence@gmail.com](mailto:amaralpereira.clemence@gmail.com)
-* +33 7 82 46 81 52
-* [LinkedIn](www.linkedin.com/in/clemence-amaral-pereira-1aa110270) 
+* [LinkedIn](linkedin.com/in/clemence-amaral-pereira-1aa110270) 
 
 ### 🎨 Hobbies & Interests
 
